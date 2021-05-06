@@ -8,4 +8,3 @@ Hi there 👋 My name is Fahrizal
 - 📫 How to reach me: fahrizalmau@gmail.com
 - 😄 Pronouns: He/Him/His
 - ⚡ Fun fact: I'm a minimalist :)
--->
